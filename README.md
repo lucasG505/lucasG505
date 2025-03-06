@@ -7,6 +7,3 @@ I´m Lucas, Im glad you landed on my github that means you´re interested in me.
 - 👯 I’m looking to collaborate on various projects that envolve new technologies for me to learn.
 - 💬 I´m currently available for work so...
 - 📫 How to reach me: lucasgonzalez505@outlook.com or lucas.mariano.g@gmail.com
-- 😄 Pronouns: He/Him
-- ⚡ Fun fact: I´m a Libra y de mi no hay quien se libre.
--->
